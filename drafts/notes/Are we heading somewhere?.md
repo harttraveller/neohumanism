@@ -1,0 +1,1 @@
+Yes. But we still have agency. Much like a river winding down a mountain, there are many different paths the river might carve in the stone to make it to the bottom, but no matter which way it goes, it is still inexorably drawn downwards, and down it will go.

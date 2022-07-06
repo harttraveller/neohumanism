@@ -1,0 +1,3 @@
+- [ ] Add religious structure and mythology
+- [ ] Create youtube videos (use obsidian slides?) introducing some concepts for criticism
+- [ ] 

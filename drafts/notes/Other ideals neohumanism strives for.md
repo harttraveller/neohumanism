@@ -1,0 +1,1 @@
+- Coexistence with science. In fact, neohumanism is a *pro-science* religious and philosophical framework.
