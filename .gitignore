@@ -1,2 +1,5 @@
 .obsidian
 .trash
+.DS_Store
+publish.js
+publish.css
